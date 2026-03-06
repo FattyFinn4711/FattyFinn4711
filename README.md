@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FattyFinn4711
-- 👀 I’m interested in FIFA22
+- 👀 I’m interested in FC25
 - 🌱 I’m currently learning everything from the beginning
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
